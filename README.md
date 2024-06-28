@@ -1,2 +1,2 @@
-# DucLiemWedding.github.io
+# DucLiemWedding
 Đức và Liểm Wedding
